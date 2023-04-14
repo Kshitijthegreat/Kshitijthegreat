@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Kshitijthegreat(Kshitij Joshi)
-- 🌱 I’m currently learning in school
 - 📫 How to reach me - iamkshitij5@gmail.com
 
 <!---
